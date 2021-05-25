@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Zaid-Ayyaz
+- 📫 How to reach me (azad.co)
